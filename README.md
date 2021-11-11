@@ -10,7 +10,11 @@ You can click the Preview link to take a look at your changes.
 --->
 i want kill evry thing make me sad 
 i dont like my past iam 
-not love any one like frind 
-my frind not my feel that 
+not love any one like freind 
+my friend not my feel that 
 when see him dont give him 
 he is not me 
+
+
+i take one and half this only can take dant give more
+evry one know his way ok 
